@@ -2,7 +2,7 @@
 
 ![Aviator Predictor](https://spribe.co/assets/images/games/carousel/av-01.jpg)
 
-<h2><a href="https://t.me/Ganymed_Channel">✈️ Click Here To Download Aviator Predictor 2026!</a></h2>
+<h2><a href="To://t.me/Ganymed_Channel">✈️ Click Here To Download Aviator Predictor 2026!</a></h2>
 <h2><a href="https://t.me/Ganymed_Hack">⚡️ My Personal Account!</a></h2>
 
 ## Introduction to Aviator Predictor
